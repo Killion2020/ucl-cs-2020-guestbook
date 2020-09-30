@@ -116,3 +116,6 @@ I'm inept
 
 ### Justin Koo
 Love cooking and travelling (if i have the money)
+
+### Shabir Singh
+Beginner programmer, loves gaming (where is the AMONG US gang?) , huge movie buff!
